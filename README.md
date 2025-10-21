@@ -1,5 +1,3 @@
-bajo jajo
+*Naglowek
 
-
-
-
+no i ogolem tyle
